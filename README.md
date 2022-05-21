@@ -2,7 +2,7 @@
 - 👀 I’m interested in movies, music, K-dramas, fashion, arts, games, and food
 - 🌱 I’m currently learning computer engineering
 - 💞️ I’m looking to collaborate with people that have backgrounds on computers, technologies, and astronomy
-- 📫 How to reach me ...
+- 📫 How to reach me is confidential unless we're close ;)
 
 <!---
 leenats/leenats is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
